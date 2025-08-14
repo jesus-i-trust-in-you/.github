@@ -1,1 +1,3 @@
-# .github
+# *Jesus I Trust in You: Finding Peace in Surrender*
+## *"Jesus I Trust in You" — these five words hold oceans of mercy and healing. But did you know the hidden stories behind them? Let’s dive deep. “Jesus I Trust in You” is more than words—it’s a lifeline to divine mercy, a call to surrender, and a promise of hope. Will you trust Him today?* [More details…](https://spiritualkhazaana.com/web-stories/jesus-i-trust-in-you/)
+## #trustinyou #JesusITrustInYou #DivineMercy #FaithOverFear #TrustGod #ChristianInspiration #HopeInHardTimes #JesusItrustinYoufacts #DivineMercyhiddentruths #SpiritualmeaningofJesusitrustinYou #divineMercydevotionsecrets
